@@ -2,7 +2,7 @@
 
 
 ## Informações
-✦ Nome: Guilherme Souza
+✦ Nome: Guilherme Henrique Souza Matos
 ###
 ✦ Idade: 22 Anos
 ###
